@@ -45,3 +45,9 @@ zPrestige_ - Mega OyVey fetish & his prestige base is so bad my god.
 ObsidianBreaker/accessmodifier364 - Fetish for w+2 (This was awhile ago tho, so he might actually be able to code now).
 
 Catuquei - OyVey Fetish. (Starting to see a pattern with pvpers and them "coding" new clients).
+
+4k5k - skidded BLOP.
+
+06d = xulu fetish.
+
+SirRina w+2 fetish.
